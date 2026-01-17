@@ -10,5 +10,5 @@ For my previous projects, you can check my old account or contact me.
 
 ### Feel free to reach out:
 - E-mail: [855309@protonmail.com](mailto:855309@protonmail.com)
-- Discord: **85530**
+- Discord: **troll567**
 - Matrix: **@user0020:matrix.org**
